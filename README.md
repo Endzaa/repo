@@ -1,1 +1,0 @@
-Endijs Feldmanis
